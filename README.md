@@ -3,7 +3,7 @@ volte sempre
 falo inglês
 bruna gatona
 amo a heloisa 
-amo meus amigos:breno e anderson 
+amo meus amigos:breno, anderson e a rafa
 tenho 17 anos 
 nunca reprovei 
 amo as aulas da ariane 
